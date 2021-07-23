@@ -22,6 +22,6 @@ procedure: 1)firstly, in a large bowl take 1 carrot, 5 tbsp cabbage, 2 tbsp spri
 16)in a small bowl take 2 tsp cornflour and ¼ cup water. 
 17)mix well forming a lump-free slurry. 
 18)pour in cornflour slurry and mix well. 
-19)continue to boil until the gravy thickens and turns glossy. 2
-0)add in prepared veg manchurian balls, 2 tbsp spring onion and mix well. 
+19)continue to boil until the gravy thickens and turns glossy.
+20)add in prepared veg manchurian balls, 2 tbsp spring onion and mix well. 
 21)finally, serve veg manchurian
